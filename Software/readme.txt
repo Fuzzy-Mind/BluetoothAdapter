@@ -1,0 +1,1 @@
+- 40 derecenin üstü eklendi.
